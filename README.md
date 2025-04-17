@@ -26,7 +26,7 @@ Share Communication Award (several)
 Publicly share your proposal on social media with a hashtag (such as #Scrapeless MCP Server) and we will select lucky participants to receive a free trial of Scrapeless.
 
 ## How do apply?
-- Join the Scrapeless Discord community
+- Join the Scrapeless Discord community(https://discord.gg/Np4CAHxB9a)
 - Contact @Liam to submit a cooperation application
 - We will complete the preliminary assessment and docking within three working days
 Related Documents
